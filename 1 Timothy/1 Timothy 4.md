@@ -6,10 +6,11 @@
 
 ```
 4 Now the Spirit expressly says
-    that in later times
-        some will depart from the faith
-            by devoting themselves
-                to deceitful spirits and teachings of demons,
+    that
+        in later times
+    some will depart from the faith
+        by devoting themselves
+            to deceitful spirits and teachings of demons,
         2 through the insincerity of liars
             whose consciences are seared,
             3 who forbid marriage and require abstinence from foods
