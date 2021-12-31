@@ -42,4 +42,40 @@
                             because we have our hope set on the living God,
                                 who is the Savior of all people,
                                     especially of those who believe.
+
+11 Command and teach
+    these things.
+
+12 Let no one despise you
+    for your youth,
+    but set
+        the believers
+    an example
+        in speech,
+        in conduct,
+        in love,
+        in faith,
+        in purity.
+
+    13 Until I come,
+devote yourself
+        to the public reading of Scripture,
+        to exhortation,
+        to teaching.
+        
+14 Do not neglect the gift you have,
+    which was given you by prophecy
+        when the council of elders laid their hands on you.
+
+    15 Practice these things,
+    immerse yourself in them,
+        so that all may see your progress.
+        
+16 Keep a close watch
+    on yourself
+    and on the teaching.
+
+Persist in this,
+    for by so doing
+    you will save both yourself and your hearers.
 ```
