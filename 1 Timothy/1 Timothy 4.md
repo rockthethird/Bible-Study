@@ -5,23 +5,19 @@
 ### Some Will Depart from the Faith
 
 ```
-4 Now the Spirit expressly says
-    that
-        in later times
-    some will depart from the faith
-        by devoting themselves
-            to deceitful spirits and teachings of demons,
-                2 through the insincerity of liars
-                    whose consciences are seared,
-                    3 who forbid marriage
-                    and require abstinence from foods
-                        that God created to be received with thanksgiving
-                            by those who believe and know the truth.
-                                4 For everything created by God is good,
-                                and nothing is to be rejected
-                                    if it is received with thanksgiving,
-                                        5 for it is made holy
-                                            by the word of God and prayer.
+4 Now the Spirit expressly says                                                             [Main]
+    that in later times some will depart from the faith                                     [Content]
+        by devoting themselves to deceitful spirits and teachings of demons,                [Means]
+            2 through the insincerity of liars                                              [Means - Prep Phrase]
+                whose consciences are seared,                                               [Relative]
+                3 who forbid marriage                                                       [Relative]
+                and require abstinence from foods                                           [Parallel]
+                    that God created to be received with thanksgiving                       [Explanatory (food)]
+                        by those who believe and know the truth.                            [Explanatory (received)]
+                            4 For everything created by God is good,                        [Causal]
+                            and nothing is to be rejected                                   [Parallel]
+                                if it is received with thanksgiving,                        [Conditional]
+                                    5 for it is made holy by the word of God and prayer.    [Causal]
 ```
 
 ### A Good Servant of Christ Jesus
