@@ -2,7 +2,7 @@
 
 ## Sermon Notes
 
-#### I. What Christ Must Do To Rescue us From Darkness vv.27-50
+#### I. What Christ Must Do To Rescue us From Darkness vv.27-50 (April 2, 2023)
 
 _6 intentions of the cross that Christ must accomplish to bring us to the light:_
 

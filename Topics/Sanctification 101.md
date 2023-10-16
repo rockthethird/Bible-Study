@@ -1,10 +1,22 @@
 # Sanctification 101
 
-## God's Mission for the Christian
+## Sermon Notes
+
+### Sanctification 101 - Pt. 1
+
+_3 truths about sanctification Christians must know in order to be increasingly sanctified:_
+
+1. You will never be sanctified unless your old self has died through definitive sanctification
+
+1. You will never be sanctified unless you actively pursue progressive sanctification
+
+1. You will never be sanctified unless you eagerly await final sanctification
+
+### God's Mission for the Christian
 
 _8 essential ingredients needed for progressive sanctification_
 
-1. A New Spirit (October 15, 2023)
+1. A New Heart (October 15, 2023)
 
     - Natural fleshliness must be removed
 

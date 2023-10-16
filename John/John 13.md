@@ -6,33 +6,33 @@
 
 _In order for the disciples fo Christ to be faithful, John unveils 2 astounding features of Christ's love:_
 
-#### I. Christ's love is completely fulfilled v.1
+1. Christ's love is completely fulfilled v.1
 
-  - End - fullness: completion; of time
+    - End - fullness: completion; of time
 
-  - Christ's love is perfect so wht is our response to undesirable circumstances
+    - Christ's love is perfect so wht is our response to undesirable circumstances
 
-1. In faithfulness to the Father - v.1b
+    i. In faithfulness to the Father - v.1b
 
     - Distressed of the separation and resolved/certain of restoration
 
-1. To His sheep amidst the world - v.1c
+    ii. To His sheep amidst the world - v.1c
 
     - Love for the world is distinct from the love for His sheep
 
-#### II. Christ's love is humbly accomplished vv.2-5
+1. Christ's love is humbly accomplished vv.2-5
 
-- Something not even jewish slaves were allowed to perform
+    - Something not even jewish slaves were allowed to perform
 
-1. By utilizing Satan's schemes - v.2
+    i. By utilizing Satan's schemes - v.2
 
     - Nothing Satan does can override the will of God plans
 
-1. By disregarding granted privileges - v.3
+    ii. By disregarding granted privileges - v.3
 
-    i. Comprised of universal authority - v.3a
+    iii. Comprised of universal authority - v.3a
 
-    ii. Comprised of heavenly residence - v.3b
+    iv. Comprised of heavenly residence - v.3b
 
 |References|
 |-|
