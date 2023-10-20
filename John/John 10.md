@@ -35,13 +35,13 @@ _2 Characteristics of God's Shepherd that Prove He is the Way of Salvation:_
 |Num 27:15, Eph. 2:8-9, 1 Cor. 1:30, 2 Thes. 2:13, Acts 20:30|
 ||
 
-#### II. _These notes were missing_ vv.11-18 (December 4, 2022)
+#### II. _These notes were missing_ vv.11-18
 
 #### God's Shepherd Protects the Sheep with Divine Power vv.19-42 (December 11, 2022)
 
 _3 Features of Christ's Shepherding that Describes His Powerful Protection:_
 
-1. Christ's shepherding is effectually revealing - vv.19-21
+1. Christ's shepherding is effectually revealing - vv.19-21 (December 4, 2022)
 
     - God's Word has only two effects (draw near or resist)
 
@@ -58,3 +58,22 @@ _3 Features of Christ's Shepherding that Describes His Powerful Protection:_
     The deepest fear and darkness in this world cannot affect teh assurance we have
 
     - ALL THAT MATTERS IS WHAT GOD/CHRIST IS DOING ETERNALLY
+
+1. Christ's shepherding is expressly validated - vv. 31-42 (December 18, 2023)
+
+    i. The Good Shepherd is Confirmed by Performing God's Work's - vv.31-38
+
+    - The Word of God incarnate cannot contradict or blaspheme the Word of God v.33
+
+    - Verify: Jesus is saying that He could be considered like old testament "gods" (those who have a special personal tasks) who were to judge, so then destroying their argument of Him blaspheming (besides the facts of v.36)
+
+    - Sanctified = set apart
+
+    - The works testify that Jesus and the Father are one
+
+    ii. The Good Shepherd is Confirmed by Accomplishing God's Purposes - vv.39-42
+
+|References|
+|-|
+|Lev. 24:16; Num. 15:28; Ps. 82; Ex. 4:15, 7:1|
+||
