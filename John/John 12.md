@@ -2,7 +2,36 @@
 
 ## Sermon Notes
 
-#### I. What Christ Must Do To Rescue us From Darkness vv.27-50 (April 2, 2023)
+#### I. What is Necessary for Pure Worship vv.12-26 (March 5, 2023)
+
+_2 axioms that will protect the purity of our worship_
+
+1. Enthusiasm for Jesus must be propelled by all of God's truth - vv.12-19
+
+    i. Because it's natural to get excited about having earthly power - vv.12-16
+
+    ii. Because it's natural to get excited about escaping death vv.17-19
+
+    - Those that get excited are not about worship is not about worship it' merely about what they may get that will satisfy the desire of the flesh
+
+    - We have freedom from the fear of death
+
+1. Seeking out Jesus must be informed by self-sacrificing commitment - vv.20-26
+
+    - Chapter 12 is a transition to "the hour has come"
+
+    - Hatred is a contrast to love required to follow Christ (love = obedience)
+
+    - As we learn how to love Christ our hatred of this life will increase
+
+    - In honoring us Jesus in glorified all the more v.26b
+
+|References|
+|-|
+|Ps. 118:22, 25; Zach. 9:9; Isaiah 40; Heb. 2:14-15|
+||
+
+#### II. What Christ Must Do To Rescue us From Darkness vv.27-50 (April 2, 2023)
 
 _6 intentions of the cross that Christ must accomplish to bring us to the light:_
 
