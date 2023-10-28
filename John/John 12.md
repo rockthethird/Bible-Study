@@ -36,7 +36,21 @@ _6 intentions of the cross that Christ must accomplish to bring us to the light:
 
 1. Christ Must Prioritize God's Glory - vv.27-30 (March 12, 2023)
 
+    - Jesus also felt anguish and desire for the deliverance from physical torment
+
+    - Our hope of salvation only comes because the Father did not rescue the Son
+
+    - His anguish was magnified by His knowledge and need to take on all sin and its punishment
+
+    - Without His renewing we are blind to God even with direct evidence
+
 1. Christ Must Defeat Evil Forces - v.31
+
+    - Christ's coming created a dividing line
+
+    - Satin can be resisted by a believer
+
+    - Because of the cross work our eyes can be opened to see that we were blinded by satan, and it provides the basis for resistance against him
 
 1. Christ Must Call Sinners Effectually - v.32 (March 19, 2023)
 
@@ -54,6 +68,7 @@ _6 intentions of the cross that Christ must accomplish to bring us to the light:
 
     - The final public charge; walk in the light turns to belief; belief changes our status; one cannot be in the light and the darkness at the same time
 
-|References|
-|-|
-|Acts 26:18: John 3:14-16; John 8:28-29; Is. 52:13; John 6:44, 37; 2 Cor. 4:7-12; Gal. 6:14-15; Mark 10:33-34; John 8:12; John 1:5, 9; Ps. 36:9; John 1:12-14, 5:24, 6:29: Jer. 13:23; Ps. 119:105, 130; Luke 6:46-49; Heb.5:11-14|
+|References||
+|-|-|
+|March 12, 2023|March 19, 2023|
+|Heb. 4:15; Eph. 4:8; Col. 1:13-14, 2:13-15; 1 John 3:8-9; John 17:6; 1 John 5:18-19; 2 Cor. 4:3-6; 2 Tim. 2:24; James 4:7|Acts 26:18: John 3:14-16; John 8:28-29; Is. 52:13; John 6:44, 37; 2 Cor. 4:7-12; Gal. 6:14-15; Mark 10:33-34; John 8:12; John 1:5, 9; Ps. 36:9; John 1:12-14, 5:24, 6:29: Jer. 13:23; Ps. 119:105, 130; Luke 6:46-49; Heb.5:11-14|
