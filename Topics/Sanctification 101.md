@@ -60,4 +60,3 @@ _8 essential ingredients needed for progressive sanctification_
 |-|-|
 |October 15, 2023| October 22, 2023|
 |Prov. 1:7, 3:7, 8:13, 9:10, 14:26; 2 Cor. 7:1; Ps. 130:3, 103:11,17; 1 Pet. 2:17; Matt. 10:28; Ps. 119:60, 119:9-16; 1 Pet. 2:1-2; Heb. 3:19-4:2; James 1:21-25|Jer. 13:23; Deut. 30:6; Eze. 36:22-27; Titus 3:5; 1 Cor. 1:30; 2 Cor. 4:6; Php. 1:6; John 4:21-24, 14:16-17; Rom. 8:9-17; Gal. 5:16-25; 1 John 3:10|
-|||

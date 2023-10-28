@@ -57,7 +57,6 @@ _3 reasons that our faith must rest on the Lord's death_
 |References|
 |-|
 |Proverbs 19:21; 2 Peter 3:9|
-||
 
 ### The various Motivations in Approaching Jesus - vv.11:55-12:11 (February 26, 2023)
 
@@ -88,4 +87,3 @@ _2 pair of responses that provide discernment about the heart when there is outw
 |References|
 |-|
 |Lk 9:23-25; |
-||

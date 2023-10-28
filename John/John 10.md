@@ -33,11 +33,10 @@ _2 Characteristics of God's Shepherd that Prove He is the Way of Salvation:_
 |References|
 |-|
 |Num 27:15, Eph. 2:8-9, 1 Cor. 1:30, 2 Thes. 2:13, Acts 20:30|
-||
 
 #### II. _These notes were missing_ vv.11-18
 
-#### III. God's Shepherd Protects the Sheep with Divine Power vv.19-42 (December 11, 2022)
+#### God's Shepherd Protects the Sheep with Divine Power vv.19-42 (December 11, 2022)
 
 _3 Features of Christ's Shepherding that Describes His Powerful Protection:_
 
@@ -76,4 +75,3 @@ _3 Features of Christ's Shepherding that Describes His Powerful Protection:_
 |References|
 |-|
 |Lev. 24:16; Num. 15:28; Ps. 82; Ex. 4:15, 7:1|
-||

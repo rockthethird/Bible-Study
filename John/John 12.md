@@ -29,7 +29,6 @@ _2 axioms that will protect the purity of our worship_
 |References|
 |-|
 |Ps. 118:22, 25; Zach. 9:9; Isaiah 40; Heb. 2:14-15|
-||
 
 #### II. What Christ Must Do To Rescue us From Darkness vv.27-50
 
@@ -58,4 +57,3 @@ _6 intentions of the cross that Christ must accomplish to bring us to the light:
 |References|
 |-|
 |Acts 26:18: John 3:14-16; John 8:28-29; Is. 52:13; John 6:44, 37; 2 Cor. 4:7-12; Gal. 6:14-15; Mark 10:33-34; John 8:12; John 1:5, 9; Ps. 36:9; John 1:12-14, 5:24, 6:29: Jer. 13:23; Ps. 119:105, 130; Luke 6:46-49; Heb.5:11-14|
-||
