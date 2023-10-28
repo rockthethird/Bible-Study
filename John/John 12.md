@@ -31,15 +31,15 @@ _2 axioms that will protect the purity of our worship_
 |Ps. 118:22, 25; Zach. 9:9; Isaiah 40; Heb. 2:14-15|
 ||
 
-#### II. What Christ Must Do To Rescue us From Darkness vv.27-50 (April 2, 2023)
+#### II. What Christ Must Do To Rescue us From Darkness vv.27-50
 
 _6 intentions of the cross that Christ must accomplish to bring us to the light:_
 
-1. Christ Must Prioritize God's Glory - vv.27-30
+1. Christ Must Prioritize God's Glory - vv.27-30 (March 12, 2023)
 
 1. Christ Must Defeat Evil Forces - v.31
 
-1. Christ Must Call Sinners Effectually - v.32
+1. Christ Must Call Sinners Effectually - v.32 (March 19, 2023)
 
     - Draw is very important to properly define and clearly observe the context of v.20
 
