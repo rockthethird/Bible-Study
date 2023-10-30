@@ -56,7 +56,42 @@ _8 essential ingredients needed for progressive sanctification_
 
     - A plan is required to implement the things we learn
 
-|References||
-|-|-|
-|October 15, 2023| October 22, 2023|
-|Prov. 1:7, 3:7, 8:13, 9:10, 14:26; 2 Cor. 7:1; Ps. 130:3, 103:11,17; 1 Pet. 2:17; Matt. 10:28; Ps. 119:60, 119:9-16; 1 Pet. 2:1-2; Heb. 3:19-4:2; James 1:21-25|Jer. 13:23; Deut. 30:6; Eze. 36:22-27; Titus 3:5; 1 Cor. 1:30; 2 Cor. 4:6; Php. 1:6; John 4:21-24, 14:16-17; Rom. 8:9-17; Gal. 5:16-25; 1 John 3:10|
+1. Putting on Christ (October 29, 2023)
+
+    _In Ephesians 4:22-24, there are 3 steps to live out the new life in Jesus Christ:_
+
+    1. Throw Off Your Worthless Mindset - v.22
+
+        1. Throwing Off the Worthless Mindset Includes Killing Wickedness
+
+            - Corrupted = being destroyed
+
+            - Living in sin = living a life that is full of deceit
+
+        1. Throwing Off the Mindset Includes Denouncing Rulership
+
+        1. Throwing Off the Worthless Mindset Includes Repudiating Desires
+
+    1. Constantly Revitalizing Your Mind - v.23
+
+        1. The Commencement of Revitalizing your Mind
+
+            -  These thing wage war against our spirit so we should never think holiness is done fully on our behalf
+
+            - However, the power to do so does not come from us
+
+            - The passive tense here shows we cannot God's primary role
+
+        1. The Substance of Revitalizing your Mind
+
+            - Renewing our mind is not asking God to remove our temptations
+
+    1. Suit Up With Christ - v.24
+
+        - When we are struggling in a sin, we must store up scripture that deal with the sin
+
+
+|References|||
+|-|-|-|
+|October 15, 2023|October 22, 2023|October 29, 2023|
+|Prov. 1:7, 3:7, 8:13, 9:10, 14:26; 2 Cor. 7:1; Ps. 130:3, 103:11,17; 1 Pet. 2:17; Matt. 10:28; Ps. 119:60, 119:9-16; 1 Pet. 2:1-2; Heb. 3:19-4:2; James 1:21-25|Jer. 13:23; Deut. 30:6; Eze. 36:22-27; Titus 3:5; 1 Cor. 1:30; 2 Cor. 4:6; Php. 1:6; John 4:21-24, 14:16-17; Rom. 8:9-17; Gal. 5:16-25; 1 John 3:10|Gal 3:27; Rom 13:14; Gal 2:20; Heb 3:13; Col. 3:5, 7; Rom 6:12-13; 1 Pet 2:11; 2 Cor. 10:3-6; John 17:17; 1 Pet. 1:15|
