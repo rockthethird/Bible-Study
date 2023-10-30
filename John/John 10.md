@@ -60,17 +60,17 @@ _3 Features of Christ's Shepherding that Describes His Powerful Protection:_
 
 1. Christ's shepherding is expressly validated - vv. 31-42 (December 18, 2023)
 
-    i. The Good Shepherd is Confirmed by Performing God's Work's - vv.31-38
+    1. The Good Shepherd is Confirmed by Performing God's Work's - vv.31-38
 
-    - The Word of God incarnate cannot contradict or blaspheme the Word of God v.33
+        - The Word of God incarnate cannot contradict or blaspheme the Word of God v.33
 
-    - Verify: Jesus is saying that He could be considered like old testament "gods" (those who have a special personal tasks) who were to judge, so then destroying their argument of Him blaspheming (besides the facts of v.36)
+        - Verify: Jesus is saying that He could be considered like old testament "gods" (those who have a special personal tasks) who were to judge, so then destroying their argument of Him blaspheming (besides the facts of v.36)
 
-    - Sanctified = set apart
+        - Sanctified = set apart
 
-    - The works testify that Jesus and the Father are one
+        - The works testify that Jesus and the Father are one
 
-    ii. The Good Shepherd is Confirmed by Accomplishing God's Purposes - vv.39-42
+    1. The Good Shepherd is Confirmed by Accomplishing God's Purposes - vv.39-42
 
 |References|
 |-|

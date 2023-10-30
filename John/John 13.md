@@ -12,27 +12,27 @@ _In order for the disciples fo Christ to be faithful, John unveils 2 astounding 
 
     - Christ's love is perfect so wht is our response to undesirable circumstances
 
-    i. In faithfulness to the Father - v.1b
+    1. In faithfulness to the Father - v.1b
 
-    - Distressed of the separation and resolved/certain of restoration
+        - Distressed of the separation and resolved/certain of restoration
 
-    ii. To His sheep amidst the world - v.1c
+    1. To His sheep amidst the world - v.1c
 
-    - Love for the world is distinct from the love for His sheep
+        - Love for the world is distinct from the love for His sheep
 
 1. Christ's love is humbly accomplished vv.2-5
 
     - Something not even jewish slaves were allowed to perform
 
-    i. By utilizing Satan's schemes - v.2
+    1. By utilizing Satan's schemes - v.2
 
-    - Nothing Satan does can override the will of God plans
+        - Nothing Satan does can override the will of God plans
 
-    ii. By disregarding granted privileges - v.3
+    1. By disregarding granted privileges - v.3
 
-    iii. Comprised of universal authority - v.3a
+    1. Comprised of universal authority - v.3a
 
-    iv. Comprised of heavenly residence - v.3b
+    1. Comprised of heavenly residence - v.3b
 
 |References|
 |-|
@@ -74,9 +74,9 @@ _2 teaching tools of Christ by which we learn humble sacrifice:_
 
     - A cleansing of sin is of selfishness as well
 
-        i. serving = worship
+        - serving = worship
 
-        ii. ought = obligation, required duty to serve
+        - ought = obligation, required duty to serve
 
     - Humble, sacrificial service can play out in many way
 
@@ -86,19 +86,19 @@ _2 teaching tools of Christ by which we learn humble sacrifice:_
 
 1. Christ reveals fundamental truths to propel our sacrificial service - vv.16-17
 
-    i. A proper assessment must be made - v.16
+    1. A proper assessment must be made - v.16
 
-    - Slaves give up the right to make demands
+        - Slaves give up the right to make demands
 
-    - Requires giving up that which you would otherwise have the right to
+        - Requires giving up that which you would otherwise have the right to
 
-    - Understand the gap; recognize
+        - Understand the gap; recognize
 
-    ii. A significant condition must be met v.17
+    1. A significant condition must be met v.17
 
-    - Not keeping His word is rejecting
+        - Not keeping His word is rejecting
 
-    - Who are we to even serve (John 3:36, 12:48)
+        - Who are we to even serve (John 3:36, 12:48)
 
 |References|
 |-|

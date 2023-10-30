@@ -42,17 +42,17 @@ _3 reasons that our faith must rest on the Lord's death_
 
 1. Because it was God's intention for His Son to die in place of sinners - vv.47-53
 
-    i. Which is in conjunction with the sinful intentions of man - vv.47-50
+    1. Which is in conjunction with the sinful intentions of man - vv.47-50
 
-    - Sinful fear of the lose of an idol (power/wealth/etc.)
+        - Sinful fear of the lose of an idol (power/wealth/etc.)
 
-    - A high priests death would free those in the sanctuary city
+        - A high priests death would free those in the sanctuary city
 
-    ii. Which supersedes the sinful intentions of man -- vv.51-53
+    1. Which supersedes the sinful intentions of man -- vv.51-53
 
-    - Unparalleled example of prophesy
+        - Unparalleled example of prophesy
 
-    - God is sovereign over it, man is responsible; both are true at the same time
+        - God is sovereign over it, man is responsible; both are true at the same time
 
 |References|
 |-|

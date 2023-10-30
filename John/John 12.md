@@ -8,13 +8,13 @@ _2 axioms that will protect the purity of our worship_
 
 1. Enthusiasm for Jesus must be propelled by all of God's truth - vv.12-19
 
-    i. Because it's natural to get excited about having earthly power - vv.12-16
+    1. Because it's natural to get excited about having earthly power - vv.12-16
 
-    ii. Because it's natural to get excited about escaping death vv.17-19
+    1. Because it's natural to get excited about escaping death vv.17-19
 
-    - Those that get excited are not about worship is not about worship it' merely about what they may get that will satisfy the desire of the flesh
+        - Those that get excited are not about worship is not about worship it' merely about what they may get that will satisfy the desire of the flesh
 
-    - We have freedom from the fear of death
+        - We have freedom from the fear of death
 
 1. Seeking out Jesus must be informed by self-sacrificing commitment - vv.20-26
 
