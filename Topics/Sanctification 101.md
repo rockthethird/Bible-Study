@@ -56,39 +56,39 @@ _8 essential ingredients needed for progressive sanctification_
 
     - A plan is required to implement the things we learn
 
-1. Putting on Christ (October 29, 2023)
+#### II. Putting on Christ (October 29, 2023)
 
-    _In Ephesians 4:22-24, there are 3 steps to live out the new life in Jesus Christ:_
+_In Ephesians 4:22-24, there are 3 steps to live out the new life in Jesus Christ:_
 
-    1. Throw Off Your Worthless Mindset - v.22
+6. Throw Off Your Worthless Mindset - v.22
 
-        1. Throwing Off the Worthless Mindset Includes Killing Wickedness
+    1. Throwing Off the Worthless Mindset Includes Killing Wickedness
 
-            - Corrupted = being destroyed
+        - Corrupted = being destroyed
 
-            - Living in sin = living a life that is full of deceit
+        - Living in sin = living a life that is full of deceit
 
-        1. Throwing Off the Mindset Includes Denouncing Rulership
+    1. Throwing Off the Mindset Includes Denouncing Rulership
 
-        1. Throwing Off the Worthless Mindset Includes Repudiating Desires
+    1. Throwing Off the Worthless Mindset Includes Repudiating Desires
 
-    1. Constantly Revitalizing Your Mind - v.23
+1. Constantly Revitalizing Your Mind - v.23
 
-        1. The Commencement of Revitalizing your Mind
+    1. The Commencement of Revitalizing your Mind
 
-            -  These thing wage war against our spirit so we should never think holiness is done fully on our behalf
+        -  These thing wage war against our spirit so we should never think holiness is done fully on our behalf
 
-            - However, the power to do so does not come from us
+        - However, the power to do so does not come from us
 
-            - The passive tense here shows we cannot God's primary role
+        - The passive tense here shows we cannot God's primary role
 
-        1. The Substance of Revitalizing your Mind
+    1. The Substance of Revitalizing your Mind
 
-            - Renewing our mind is not asking God to remove our temptations
+        - Renewing our mind is not asking God to remove our temptations
 
-    1. Suit Up With Christ - v.24
+1. Suit Up With Christ - v.24
 
-        - When we are struggling in a sin, we must store up scripture that deal with the sin
+    - When we are struggling in a sin, we must store up scripture that deal with the sin
 
 
 |References|||
