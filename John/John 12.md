@@ -2,7 +2,7 @@
 
 ## Sermon Notes
 
-#### I. What is Necessary for Pure Worship vv.12-26 (March 5, 2023)
+### What is Necessary for Pure Worship vv.12-26 (March 5, 2023)
 
 _2 axioms that will protect the purity of our worship_
 
@@ -30,9 +30,11 @@ _2 axioms that will protect the purity of our worship_
 |-|
 |Ps. 118:22, 25; Zach. 9:9; Isaiah 40; Heb. 2:14-15|
 
-#### II. What Christ Must Do To Rescue us From Darkness vv.27-50
+### What Christ Must Do To Rescue us From Darkness vv.27-36
 
 _6 intentions of the cross that Christ must accomplish to bring us to the light:_
+
+_Verify: why there are only 4 denoted below_
 
 1. Christ Must Prioritize God's Glory - vv.27-30 (March 12, 2023)
 
@@ -68,7 +70,12 @@ _6 intentions of the cross that Christ must accomplish to bring us to the light:
 
     - The final public charge; walk in the light turns to belief; belief changes our status; one cannot be in the light and the darkness at the same time
 
-#### III. The Implications of Unbelief vv.37-50
+|References||
+|-|-|
+|March 12, 2023|March 19, 2023|March 26, 2023|April 2, 2023|
+|Heb. 4:15; Eph. 4:8; Col. 1:13-14, 2:13-15; 1 John 3:8-9; John 17:6; 1 John 5:18-19; 2 Cor. 4:3-6; 2 Tim. 2:24; James 4:7|Acts 26:18: John 3:14-16; John 8:28-29; Is. 52:13; John 6:44, 37; 2 Cor. 4:7-12; Gal. 6:14-15; Mark 10:33-34; John 8:12; John 1:5, 9; Ps. 36:9; John 1:12-14, 5:24, 6:29: Jer. 13:23; Ps. 119:105, 130; Luke 6:46-49; Heb.5:11-14|
+
+### The Implications of Unbelief vv.37-50
 
 _3 biblical precepts that provide tremendous hope that unbelief does not thwart God's redemptive plan_ (March 26, 2023)
 
@@ -110,7 +117,7 @@ _2 features of unbelief that should destroy any notion of self-trust_ (April 2, 
 
         - The world is already judged
 
-|References||||
-|-|-|-|-|
-|March 12, 2023|March 19, 2023|March 26, 2023|April 2, 2023|
-|Heb. 4:15; Eph. 4:8; Col. 1:13-14, 2:13-15; 1 John 3:8-9; John 17:6; 1 John 5:18-19; 2 Cor. 4:3-6; 2 Tim. 2:24; James 4:7|Acts 26:18: John 3:14-16; John 8:28-29; Is. 52:13; John 6:44, 37; 2 Cor. 4:7-12; Gal. 6:14-15; Mark 10:33-34; John 8:12; John 1:5, 9; Ps. 36:9; John 1:12-14, 5:24, 6:29: Jer. 13:23; Ps. 119:105, 130; Luke 6:46-49; Heb.5:11-14|John 20:30, 21:25; Acts 2:22-23; John 9:39, 6:44, Rom. 8:8; Ex. 10:1-2; Num. 14:22-23; Matt. 11:20-24; Is. 6:13; Rom. 11:11-36; Deut. 29:2-4, 30:6, 30:15-20; Luke 12:48|Prov. 3:5-7; Luke 12:8-9; Rom. 10:9; Luke 6:22-23; John 5:44; Matt. 23:5-6; Prov. 29:25; Ps. 56:3-4; Matt. 10:28; 2 Cor. 5:9-10; John 12:26, 5:23b; 1 John 2:23, 1:5-7; Eph. 5:6-11; John 12:26; Acts 17:30-31; Deut. 18:18-19|
+|References||
+|-|-|
+|March 26, 2023|April 2, 2023|
+|John 20:30, 21:25; Acts 2:22-23; John 9:39, 6:44, Rom. 8:8; Ex. 10:1-2; Num. 14:22-23; Matt. 11:20-24; Is. 6:13; Rom. 11:11-36; Deut. 29:2-4, 30:6, 30:15-20; Luke 12:48|Prov. 3:5-7; Luke 12:8-9; Rom. 10:9; Luke 6:22-23; John 5:44; Matt. 23:5-6; Prov. 29:25; Ps. 56:3-4; Matt. 10:28; 2 Cor. 5:9-10; John 12:26, 5:23b; 1 John 2:23, 1:5-7; Eph. 5:6-11; John 12:26; Acts 17:30-31; Deut. 18:18-19|
