@@ -95,3 +95,79 @@ _In Ephesians 4:22-24, there are 3 steps to live out the new life in Jesus Chris
 |-|-|-|
 |October 15, 2023|October 22, 2023|October 29, 2023|
 |Prov. 1:7, 3:7, 8:13, 9:10, 14:26; 2 Cor. 7:1; Ps. 130:3, 103:11,17; 1 Pet. 2:17; Matt. 10:28; Ps. 119:60, 119:9-16; 1 Pet. 2:1-2; Heb. 3:19-4:2; James 1:21-25|Jer. 13:23; Deut. 30:6; Eze. 36:22-27; Titus 3:5; 1 Cor. 1:30; 2 Cor. 4:6; Php. 1:6; John 4:21-24, 14:16-17; Rom. 8:9-17; Gal. 5:16-25; 1 John 3:10|Gal 3:27; Rom 13:14; Gal 2:20; Heb 3:13; Col. 3:5, 7; Rom 6:12-13; 1 Pet 2:11; 2 Cor. 10:3-6; John 17:17; 1 Pet. 1:15|
+
+#### VII. Repentance from Sin (Adapted from Thomas Watson’s, The Doctrine of Repentance) (November 12, 2023)
+
+_6 necessary steps of true repentance:_
+
+Introduction:
+
+- True repentance is a resourceful change of mind that results in turning to God and away from sin
+
+- Confession alone is not repentance
+
+1. Sight of sin
+
+    - Willful ignorance and self-love will block our sight of sin
+
+    - Is our sin an ongoing burden for us
+
+1. Shame for sin
+
+    - Humiliation is a synonym for shame
+
+    - Shame should be a help to repentance
+
+    - If you have a pattern of sin guilt is your friend
+
+    - Sin makes us guilt of high treason against a Holy God
+
+    - Every sin has put Christ to shame
+
+1. Sorrow for sin
+
+    - Sincere sorrow for the offense against the Lord
+
+    - Faith filled
+
+    - Godly sorrow does not end in despair as the Lord wouldn't draw us away from God
+
+    - Godly sorrow is restorative
+
+    - Sorrowful yet always rejoicing
+
+1. Hatred for sin
+
+    - Hating the consequences sin brings is not the same as hating sin
+
+    - There is a love for any sin which keeps sticking to you
+
+    - We must hate our very nature
+
+    - We must hate sin as hell itself
+
+1. Confession of sin 
+
+    - Acknowledgement of our wrong doing
+
+    - Admit sins as specifically as possible while being honest with God (Prov. 28:13)
+
+    - Do not give fare names for foul things
+
+    - Confession acknowledges we our sinful nature and not external circumstances
+
+    - True confession glorifies God
+
+1. Turning from sin
+
+    - Turn from sin to God and join your battle with Him
+
+    - Renewing of the mind with scripture is an act of worship
+
+    - Irrationality is to be conformed to the world
+
+    - Every sin we commit is worse than an unbeliever sinning because we sin against the light that has been revealed to us
+
+|References|
+|-|
+|2 Cor. 7:9-10; Ps. 139:23-24; Jer. 2:12-13; Rom. 2:4; Ps. 51:17; Is. 66:2; Luke 19:8-9; Acts 26:18-20|
