@@ -100,11 +100,11 @@ _In Ephesians 4:22-24, there are 3 steps to live out the new life in Jesus Chris
 
 _6 necessary steps of true repentance:_
 
-Introduction:
+- Introduction
 
-- True repentance is a resourceful change of mind that results in turning to God and away from sin
+    - True repentance is a resourceful change of mind that results in turning to God and away from sin
 
-- Confession alone is not repentance
+    - Confession alone is not repentance
 
 1. Sight of sin
 
