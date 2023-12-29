@@ -166,8 +166,82 @@ _6 necessary steps of true repentance:_
 
     - Irrationality is to be conformed to the world
 
-    - Every sin we commit is worse than an unbeliever sinning because we sin against the light that has been revealed to us
+    - Every sin we commit is worse than an unbeliever sinning because we sin against the light that has been revealed to us 
 
 |References|
 |-|
 |2 Cor. 7:9-10; Ps. 139:23-24; Jer. 2:12-13; Rom. 2:4; Ps. 51:17; Is. 66:2; Luke 19:8-9; Acts 26:18-20|
+
+#### VIII. Strength from God
+_In Eph. 6:10-20, Paul puts forth 3 powerful features of a believer’s fight against evil that enables a victorious life:_
+
+- Introduction:
+
+    - Sin of self sufficiency: relying on self to accomplish what only God has power to
+
+    - Efforts must be made but cannot be relied upon
+
+1. The powerful source of the believer’s fight—vv.10-12
+
+    - We must stand firm in the temptations of faith
+
+    - Heavenly places: the unseen realm, a contrast to that which can be seen and touched
+
+2. The powerful protection of the believer’s fight—vv.13-17
+
+    - We must stand firm, not fight offensively
+
+    - We need the entire armor of God to be capable of resisting Satan's deceits
+
+    - We must trust in these things as evil never appears evil until it has accomplished its goal
+
+    - The days are evil because Satan is the ruler of this world so do not trust in worldly ideals
+
+    - Having done everything, is doing our part in putting on the armor
+
+    - Belt is being truthful in life so you are ready against deceit
+
+    - Brest plate of righteousness trains the heart to despise sin
+
+    - Sandals (spike for grip) helps your heart be grounded/prepared to have peace during the fight 
+
+    _Point 2 was continued on (November 26, 2023)_
+
+    - Fiery darts are the lies of Satan just like in Genesis
+
+    - God will protect us to uphold the glory of His name
+
+    - Our soul cannot be harmed no matter our circumstances
+
+    - Know, believe, live by
+
+    - General knowledge will not be sufficient to discern the lies
+
+3. The powerful complement of the believer’s fight—vv.18-20
+
+    - Prayer should seek the glory of God and conformity to Christ and not the comfort of this world that anyone would want
+
+    - All time: every opportunity to stand firm
+
+    - Prayer is a humbling act which God pours His grace upon
+
+    - Pray in the power of the Spirit (His words from the bible)
+
+|References||
+|-|-|
+|November 19, 2023|November 26, 2023|
+|Ps. 33:16-22; John 15:5; 1 Cor. 10:12; Eph. 1:19-20, 3:16-17, 20, 1:3, 20, 2:6, 3:10; James 4:7; Is. 11:5, 59:17, 52:7; Rom. 5:1; Eph. 2:13-14|2 Cor. 12:9-10, 10:3-5; Is. 59:17; Matt. 4:1-11; James 4:7; Php. 4:6-7; Col. 4:2;|
+||Php. 1:6; 1 Thess. 4:3, 7-8 (sanctification summary)|
+
+##### WISDOM FOR THE CHRISTIAN LIFE
+
+__John Bunyan defined prayer this way:__
+
+Prayer is a sincere, sensible, affectionate pour-
+ing out of the heart to God, through Christ, in
+the strength and assistance of the Holy Spirit,
+for such things as God has promised according to
+His Word, for the good of the Church, with sub-
+mission in faith to the will of God.
+
+_(John Bunyan, A Discourse Touching Prayer, vol. 1 [Bellingham, WA: Logos Bible Software, 2006], 623.)_
