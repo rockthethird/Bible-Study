@@ -43,3 +43,25 @@ _In order to take heed to the truth as we ought, there are 4 insights we must un
 |References|
 |-|
 |1 Jn 4:4-6; Jn 4:24, 8:31, 17:17; 1 Jn 1:6; 2:4, 3:18; Jn 1:14, 17-18, 14:6; Eph 1:13; 2 Th 2:13; Rom 10:13-17; Acts 18:5, 20:20-21; Jn 3:19-20, 8:45-47|
+
+#### II. The faithfulness of Christ vs. the compromise of man—vv.12-27
+
+_2 ways that John highlights the faithfulness of Christ in contrast to the faithlessness of Peter that should propel our allegiance to Christ:_
+
+1. Jesus’ compliance vs. Peter’s capitulation—vv.12-18
+
+    - The is no grace in self-protection
+
+2. Jesus’ courage vs. Peter’s cowardice—vv.19-27
+
+    - Jesus was challenging to have witnesses come and testify about what he taught in order to unmask their motives
+
+    - This scene in history demonstrates further how Jesus was submitting (remember in the garden only two words, "I am", and everyone fell)
+
+    - Your either turn from your lies or compound them
+
+    - This demonstrates the depravity of man which requires God to change us
+
+|References|
+|-|
+|John 13:36-38, 12:25-26; Luke 3:2; Acts 4:6; James 4:8; Matt. 10:33; 1 Pet. 2:21-25|
