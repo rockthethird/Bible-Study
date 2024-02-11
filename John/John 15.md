@@ -47,3 +47,21 @@ _2 motivations to bear fruit by clinging to Christ continually in order to be as
 |References|
 |-|
 |John 14:15, 21; 1 John 5:2-3; John 5:20, 10:17, 17:26; 1 John 2:3-5; John 13:1, 14:16-17; Rom. 12:2; Luke 22:42; Jude 21, 24; John 14:27; Heb. 12:2; Jn 3:29-30; 1 Jn 4:20-21, 3:16; Eph. 1:4; Jn 14:13-14, 15:7|
+
+### What Christ Followers Can Expect By Being In Union with Him
+
+#### I. Hostility from Unbelievers—15:18-25
+
+#### II. Help from God-15:26-16:15 (August 20, 2023)
+
+_5 arenas of God’s help that Christians must know in order to have confidence as witnesses for Christ:_
+
+- Introduction
+
+   - Common fears: lack of knowledge, lack of boldness
+
+1. Help with testifying in light of divine assistance—vv.26-27
+
+    - The spirit is sent from the Father who is the central hub of the redemptive plan
+
+_The sermon notes continue in [John 16.md](./John%2016.md)_

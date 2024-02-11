@@ -65,3 +65,49 @@ _2 ways that John highlights the faithfulness of Christ in contrast to the faith
 |References|
 |-|
 |John 13:36-38, 12:25-26; Luke 3:2; Acts 4:6; James 4:8; Matt. 10:33; 1 Pet. 2:21-25|
+
+#### III. The kingly surrender of Christ vs. the pseudo control of man— 18:28-19:15
+
+_We can gain great confidence in God’s sovereign plan for our lives by looking at 4 outcomes of Christ surrendering to his condemnation:_
+
+    - Website has clarification on the seemingly different timing of passover in the gospels
+
+1. The unfounded delivering of the King confirmed his word— vv.28-32 (January 28, 2024)
+
+    - Pilot had previously shown bad leadership
+
+    - Roman rule prevented the Jews from carrying out Mosaic law death penalty
+
+1. The uninformed questioning of the King revealed his purpose— vv.33-38
+
+    - Being born again of the spirit is required to see Jesus as King in His first coming
+
+|References|
+|-|
+|Matt 26:3-5; Jn 12:32-33, 3:14-15, 11:50; Gal 3:13 ;1 Pet 4:12-14; Luke 23:2; John 7:2-8, 6:15; 1 Pet. 3:14-15|
+
+3. The unjust treatment of the King contradicted his innocence- vv.38b-19:7 (February 4, 2024)
+
+    - Barabbas means son of the father, adding to the irony of the crucifixion which was also paralleled in the prophecy in John 10
+
+    - The beatings were possibly an attempt o Pilot to satisfy the mob, considering he found nothing wrong and was trying to transfer responsibility to the Jewish leaders
+
+    - Pilot saying "the man" as another attempt to show that Jesus was no threat considering the display of a punished body as a harmless man
+
+1. The unsubstantiated condemnation of the King vindicated his identity—vv.8-15
+
+    - The charge of Jesus' calling himself the Son of God has been brewing since John 5:18
+
+    - In our personal lives we must not have declaring/defending our innocence be the top priority or we may be against God's plan
+
+    - Jesus tends to only answer those questioning Him if the one questioning is seeking the truth
+
+    - Caiaphas is likely the one who has the greater sin
+
+    - Fear of man makes one  vulnerable to be easily manipulated
+
+    - v14 demonstrates how Jesus is the final sacrifice
+
+|References|
+|-|
+|Acts 2:22-23, 3:13-15; Is 50:6-7; Matt 27:25; Jn 5:18; 1 Pet 3:16-17; Acts 4:27-28; Prov. 29:25; 1 Pet. 4:15-16|
