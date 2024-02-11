@@ -42,7 +42,7 @@ _5 arenas of God’s help that Christians must know in order to have confidence 
 |-|
 |1 Cor. 2:10-14; John 14:20, 23, 3:18, 36, 12:31; Acts 2:36, 24:24; John 14:26; Ps. 25:5, 143:10; 2 Pet. 1:21, 1:3, Mark 10:45|
 
-#### III. Encouragement from Christ 16:16-33
+#### III. Encouragement from Christ 16:16-33 (September 10, 2023)
 
 _2 truths that Christians must believe to receive unshakable encouragement from Christ:_
 
