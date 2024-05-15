@@ -23,10 +23,10 @@ Main points always come from the indentation.
 
 ### Summary stament
 
-Two ...
+Two warnings about loving the world. 
 
 ### Main point statements 
 
-1. 15ab - 
+1. 15ab - What is loving the world
 
-1. 15d - 
+1. 15d - The detriment of loving the world
