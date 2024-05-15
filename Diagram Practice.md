@@ -27,5 +27,5 @@ Two warnings about loving the world.
 
 ### Main point statements 
 
-1. 15ab - A warning to not love the world
-1. 15d - The detriment of loving the world
+1. 15ab - We must not love the world
+1. 15d - The truth about loving the world
