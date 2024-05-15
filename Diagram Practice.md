@@ -2,7 +2,7 @@
 
 ## Outling
 
-Main points always come from the indentation. 
+Main points always come from the indentation. There should always be a direct tie to the diagram. 
 
 ## 1 John 2:15-17
 
@@ -27,6 +27,5 @@ Two warnings about loving the world.
 
 ### Main point statements 
 
-1. 15ab - What is loving the world
-
+1. 15ab - A warning to not love the world
 1. 15d - The detriment of loving the world
