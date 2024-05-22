@@ -35,8 +35,8 @@ Two warnings about loving the world.
 
 #### Option 1
 
-1. 16 - The things of this world have no spiritual value
-1. 17 - The things of this world are temporary (have no eternal value)
+1. 16 - Because the things of this world have no spiritual life
+1. 17 - Because the things of this world are temporary (have no eternal value)
 
 #### Option 2
 
