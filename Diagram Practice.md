@@ -23,9 +23,24 @@ Main points always come from the indentation. There should always be a direct ti
 
 ### Summary stament
 
+#### Option 1
+
+Two reasons belivers must gaurd against loving the world or the things of the world
+
+#### Option 2
+
 Two warnings about loving the world. 
 
-### Main point statements 
+### Main point statements
+
+#### Option 1
+
+1. 16 - The things of this world have no spiritual value
+1. 17 - The things of this world are temporary (have no eternal value)
+
+#### Option 2
 
 1. 15ab - We must not love the world
 1. 15d - The truth about loving the world
+    1. 16 - same as option 1?
+    1. 17 - same as option 1?
