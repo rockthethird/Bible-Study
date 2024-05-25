@@ -48,7 +48,7 @@ _2 exhortations given to women that, when obeyed, will uphold the unique functio
 |-|
 |1 Tim 3:15; 2 Th 3:12; Gen 2:22; 2 Cor 11:3; Mt 24:31; 1 Tim 4:16|
 
-#### Women must be submissive examples—(Eph 5:22-24/1 Pet 3:1-6)
+#### Women must be submissive examples - Eph 5:22-24 and 1 Pet 3:1-6 (March 24, 2024)
 
 1. Submission is based on acknowledging God’s design of headship - Eph. 5:22-24
 
