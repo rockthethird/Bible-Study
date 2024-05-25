@@ -47,3 +47,21 @@ _2 exhortations given to women that, when obeyed, will uphold the unique functio
 |References|
 |-|
 |1 Tim 3:15; 2 Th 3:12; Gen 2:22; 2 Cor 11:3; Mt 24:31; 1 Tim 4:16|
+
+#### Women must be submissive examples—(Eph 5:22-24/1 Pet 3:1-6)
+
+1. Submission is based on acknowledging God’s design of headship - Eph. 5:22-24
+
+    - A direct indicator of how much wives fear and trust the Lord Christ
+    - Designed by God to protect
+    - Christ submitted to ungodly authority (to remain in obedience to the Father's authority)
+
+1. Submission is based on trusting God’s means of influence - 1 Pet.3:1-6
+
+    - Quiet is not silent
+    - Any Christian living must be driven by loving Christ, especially in the submission
+    - Submission is a barometer of how much a wife trusts God
+
+|References|
+|-|
+|1 Tim 3:15; 2 Th 3:12; Gen 2:22; 2 Cor 11:3; Mt 24:31; 1 Tim 4:16; Col. 3:18; 1 Cor. 11:3ff; 1 Pet. 3:1, 2:18, 2:13; Prov. 15:1|
