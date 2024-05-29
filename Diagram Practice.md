@@ -21,26 +21,30 @@ Main points always come from the indentation. There should always be a direct ti
 17d         who does the will of God….                      relative 17c 
 ```
 
-### Summary stament
+### Outline
 
-#### Option 1
+#### OPTION 3
 
-Two reasons belivers must gaurd against loving the world or the things of the world
+2 Eternally Significant Contrasts that explain why the love of the world must be rejected:
+1. A Contrast of Sources - v.16
+    1.
+    1.
+2. A Contrast of Ends - v.17
+    1.
+    1.
 
 #### Option 2
 
 Two warnings about loving the world. 
 
-### Main point statements
+1. We must not love the world - v.15ab
+1. The truth about loving the world - v.15d 
+    1. Same as option 1? - v.16
+    1. Same as option 1? - v.17
 
 #### Option 1
 
-1. 16 - Because the things of this world have no spiritual life
-1. 17 - Because the things of this world are temporary (have no eternal value)
+Two reasons belivers must gaurd against loving the world or the things of the world
 
-#### Option 2
-
-1. 15ab - We must not love the world
-1. 15d - The truth about loving the world
-    1. 16 - same as option 1?
-    1. 17 - same as option 1?
+1. Because the things of this world have no spiritual life - v.16
+1. Because the things of this world are temporary (have no eternal value) - v.17
