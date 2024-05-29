@@ -27,11 +27,11 @@ Main points always come from the indentation. There should always be a direct ti
 
 2 Eternally Significant Contrasts that explain why the love of the world must be rejected:
 1. A Contrast of Sources - v.16
-    1.
-    1.
+    1. That which we are naturally drawn to is from the world - v.16bc
+    1. That which we are spiritually drawn to is from the Father - v.16a
 2. A Contrast of Ends - v.17
-    1.
-    1.
+    1. Those who evidently love the world are perishing - v.17ab
+    1. Those who evidently have the love of the Father live forever - v.17cd
 
 #### Option 2
 
