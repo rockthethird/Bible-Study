@@ -24,6 +24,13 @@ Main points always come from the indentation. There should always be a direct ti
 18b         and (I urge you to) share your joy with me.               parallel 18a
 ```
 
+### Outline
+
+2 reasons we must avoid grumbling and disputing
+
+1. We ars to remain as light among onlookers
+1. We are to rejoice and share our joy
+
 ## 1 John 2:15-17
 
 ```
