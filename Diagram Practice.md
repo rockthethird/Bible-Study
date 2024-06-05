@@ -2,7 +2,9 @@
 
 ## Outling
 
-Main points always come from the indentation. There should always be a direct tie to the diagram. 
+Main points always come from the indentation. There should always be a direct tie to the diagram. A means to draw out the points can be to use the first point at each level of indentation (avoid supportive clauses).
+
+Remember the outline is a tool for the teacher and although it must be grammatically correct there are multiple ways to get there.
 
 ## Philippians 2:14-18
 
