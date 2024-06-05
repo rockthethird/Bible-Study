@@ -28,8 +28,8 @@ Main points always come from the indentation. There should always be a direct ti
 
 2 reasons we must avoid sinful speach:
 
-1. We are to remain as light among onlookers - v.15-16
-1. We are to rejoice and share our joy with one another - v.17-18
+1. Because we are to remain as light among onlookers - v.15-16
+1. Because we are to rejoice and share our joy with one another - v.17-18
 
 ## 1 John 2:15-17
 
