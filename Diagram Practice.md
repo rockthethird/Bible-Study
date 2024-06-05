@@ -6,6 +6,7 @@ Main points always come from the indentation. There should always be a direct ti
 
 ## Philippians 2:14-18
 
+```
 14a Do all things without grumbling                                   main statement
 14b or (do all things without) disputing;                             parallel 14a
 15a   so that you will prove yourselves to be blameless and innocent, purpose 14ab
@@ -21,6 +22,7 @@ Main points always come from the indentation. There should always be a direct ti
               offering upon the sacrifice and service of your faith…
 18a         You too, I urge you, rejoice in the same way              parallel 17a
 18b         and (I urge you to) share your joy with me.               parallel 18a
+```
 
 ## 1 John 2:15-17
 
