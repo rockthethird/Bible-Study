@@ -1,6 +1,6 @@
 # Diagraming Practice
 
-## Outling
+## Outlining
 
 Main points always come from the indentation. There should always be a direct tie to the diagram. A means to draw out the points can be to use the first point at each level of indentation (avoid supportive clauses).
 
@@ -8,7 +8,7 @@ Remember the outline is a tool for the teacher and although it must be grammatic
 
 ## Philippians 2:14-18
 
-```
+```txt
 14a Do all things without grumbling                                   main statement
 14b or (do all things without) disputing;                             parallel 14a
 15a   so that you will prove yourselves to be blameless and innocent, purpose 14ab
@@ -35,31 +35,32 @@ Remember the outline is a tool for the teacher and although it must be grammatic
 
 ## 1 John 2:15-17
 
-```
-15a Do not love the world                                   main statement
-15b nor (love) the things in the world.                     alternative 15a
-15c     If anyone loves the world,                          conditional 15d
-15d the love of the Father is not in him.                   parallel 15ab
-16a     *For* all…is not from the Father,                     causal  15d
-16b         that is in the world, the lust of the flesh     noun/relative (all)
+```txt
+15a Do not love the world                                               main statement
+15b nor (love) the things in the world.                                 alternative 15a
+15c     If anyone loves the world,                                      conditional 15d
+15d the love of the Father is not in him.                               parallel 15ab
+16a     *For* all…is not from the Father,                               causal  15d
+16b         that is in the world, the lust of the flesh                 noun/relative (all)
             and the lust of the eyes and the boastful pride of life…
-16c     __**but**__ is from the world.                              contrast 16a
-17a     And (*for*) the world is passing away, ​​​​​​​​                     parallel 16a
-17b     and also its lusts (are passing away);              parallel 17a
-17c     __**but**__ the one… lives forever.                         contrast 17b
-17d         who does the will of God….                      relative 17c 
+16c     __**but**__ is from the world.                                  contrast 16a
+17a     And (*for*) the world is passing away, ​​​​​​​​                         parallel 16a
+17b     and also its lusts (are passing away);                          parallel 17a
+17c     __**but**__ the one… lives forever.                             contrast 17b
+17d         who does the will of God….                                  relative 17c 
 ```
 
 ### Outline
 
-#### OPTION 3
+#### Option 3
 
 2 Eternally Significant Contrasts that explain why the love of the world must be rejected:
+
 1. A Contrast of Sources - v.16
     1. The Father does not fuel self-infatuation - v.16bc
     1. The world feeds/incites self-infatuation - v.16a
 1. A Contrast of Ends - v.17
-    1. The transiences of worldliness - v.17ab
+    1. The transience of worldliness - v.17ab
     1. The eternality of godliness - v.17cd
 
 #### Option 2
@@ -73,7 +74,7 @@ Two warnings about loving the world.
 
 #### Option 1
 
-Two reasons belivers must gaurd against loving the world or the things of the world - v.15
+Two reasons believers must guard against loving the world or the things of the world - v.15
 
 1. Because the things of this world have no spiritual life - v.16
 1. Because the things of this world are temporary (have no eternal value) - v.17
