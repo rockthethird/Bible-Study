@@ -6,6 +6,43 @@ Main points always come from the indentation. There should always be a direct ti
 
 Remember the outline is a tool for the teacher and although it must be grammatically correct there are multiple ways to get there.
 
+## Ephesians 5:15-21
+
+```txt
+15a Therefore be careful how you walk,                                              main statement
+15b     not as unwise men but as wise,                                              manner 15a
+16a making the most of your time,                                                   parallel 15a
+16b     because the days are evil.                                                  causal 16a
+17a         So then do not be foolish,                                              inference 16b
+17b             but understand what the will of the Lord is.                        contrast 17a
+18a         And do not get drunk with wine,                                         parallel 17a
+18b             for that is dissipation,                                            causal 18a
+18c         but be filled with the Spirit,                                          contrast 18a
+19a             speaking to one another in psalms and hymns and spiritual songs,    manner 18c
+19b             singing and making melody with your heart to the Lord;              parallel 19a
+20              always giving thanks for all things in the name of our Lord         parallel 19b
+                Jesus Christ to God, even the Father;
+21              and be subject to one another in the fear of Christ.                parallel 20
+```
+
+### Outline
+
+#### Option 1
+
+Two prohibitions a christian should follow to live a holy life
+
+1. Avoid foolishness behavior by following God's will
+
+1. Avoid worldly influences that dulls your inner life
+
+#### Option 2
+
+Two desires a christian should exhibit to live a holy life
+
+1. They desire to understand God's will
+
+1. They desire to be controlled by the spirit
+
 ## Philippians 2:14-18
 
 ```txt
@@ -65,10 +102,10 @@ Remember the outline is a tool for the teacher and although it must be grammatic
 
 #### Option 2
 
-Two warnings about loving the world. 
+Two warnings about loving the world.
 
 1. We must not love the world - v.15ab
-1. The truth about loving the world - v.15d 
+1. The truth about loving the world - v.15d
     1. Same as option 1? - v.16
     1. Same as option 1? - v.17
 
