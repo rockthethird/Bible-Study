@@ -2,34 +2,38 @@
 
 ## Outlining
 
-Main points always come from the indentation. There should always be a direct tie to the diagram. A means to draw out the points can be to use the first point at each level of indentation (avoid supportive clauses).
+Main points always come from the indentation. However, pay more attention to the labels and do not overthink the indentation. There should always be a direct tie to the diagram. A means to draw out the points can be to use the first point at each level of indentation (avoid supportive clauses).
 
 Remember the outline is a tool for the teacher and although it must be grammatically correct there are multiple ways to get there.
 
 ## Ephesians 5:15-21
 
 ```txt
-15a Therefore be careful how you walk,                                              main statement
-15b     not as unwise men but as wise,                                              manner 15a
-16a making the most of your time,                                                   parallel 15a
-16b     because the days are evil.                                                  causal 16a
-17a         So then do not be foolish,                                              inference 16b
-17b             but understand what the will of the Lord is.                        contrast 17a
-18a         And do not get drunk with wine,                                         parallel 17a
-18b             for that is dissipation,                                            causal 18a
-18c         but be filled with the Spirit,                                          contrast 18a
-19a             speaking to one another in psalms and hymns and spiritual songs,    manner 18c
-19b             singing and making melody with your heart to the Lord;              parallel 19a
-20              always giving thanks for all things in the name of our Lord         parallel 19b
-                Jesus Christ to God, even the Father;
-21              and be subject to one another in the fear of Christ.                parallel 20
+15a Therefore be careful how you walk,                                                      inference/main statement7-14
+15b     not [walking] as unwise men                                                         manner 15a
+15c     but as wise,                                                                        contrast 15b
+16a         [by] making the most of your time,                                              means 15abc
+16b             because the days are evil.                                                  causal 16a
+17a                 So then do not be foolish,                                              inference 15-16
+17b                 but understand what the will of the Lord is.                            contrast 17a
+18a                 And [so then] do not get drunk with wine,                               parallel 17a
+18b                     for that is dissipation,                                            causal 18a
+18c                 but be filled with the Spirit,                                          contrast 18a
+19a                     speaking to one another in psalms and hymns and spiritual songs,    result 18c
+19b                     singing                                                             parallel 18c
+19c                     and making melody with your heart to the Lord;                      parallel 18c
+20                      always giving thanks for all things in the name of our Lord         parallel 18c
+                        Jesus Christ to God, even the Father;
+21                      and be subject to one another in the fear of Christ.                parallel 18c
 ```
 
 ### Outline
 
 #### Option 1
 
-Two prohibitions a christian should follow to live a holy life
+Two prohibitions a christian should follow to live a holy life [making most of your time]
+
+Intro: would setup the context by expounding on the wise walking, making most of time, and days are evil.
 
 1. Avoid foolishness behavior by following God's will
 
@@ -37,11 +41,19 @@ Two prohibitions a christian should follow to live a holy life
 
 #### Option 2
 
-Two desires a christian should exhibit to live a holy life
+Two desires a christian should exhibit to live a holy life [making most of your time]
 
 1. They desire to understand God's will
 
 1. They desire to be controlled by the spirit
+
+#### Option 3 (Matt's example)
+
+Two choices Christians must make to ensure wise living that redeems thetime
+
+1. Living out the will of the Lord instead of engaging in folly
+
+1. Being influenced by the Spirit instead of engaging in folly
 
 ## Philippians 2:14-18
 
