@@ -6,6 +6,47 @@ Main points always come from the indentation. However, pay more attention to the
 
 Remember the outline is a tool for the teacher and although it must be grammatically correct there are multiple ways to get there.
 
+## Ephesians 5:25-33
+
+25a Husbands, love your wives,                                                              main statement
+25b just as Christ also loved the church                                                    comparison 25a
+25c and gave Himself up for her,                                                            parallel 25b
+26a     so that He might sanctify her,                                                      purpose 25b
+26b     having cleansed her                                                                 result 25b
+26c         by the washing of water with the word,                                          manner 26c
+27a     that He might present to Himself the church in all her glory,                       purpose 25bc
+27b         having no spot                                                                  attendant circumstance 27a
+27c         or wrinkle                                                                      parallel 27b
+27d         or any such thing;                                                              parallel 27b
+27e         but that she would be holy                                                      contrast 27b
+27f         and blameless.                                                                  parallel 27e
+28a So husbands ought also to love their own wives                                          comparison 25b
+28b     as their own bodies.                                                                comparison 28a
+28c         [Because] He who loves his own wife loves himself;                              causal 28ab
+29a         for no one ever hated his own flesh,                                            causal 28ab
+29b             but nourishes                                                               contrast 29a
+29c             and cherishes it,                                                           parallel 29b
+29d                 just as Christ also does the church,                                    comparison 29bc
+30a                     because we are members of His body.                                 causal 29d
+31a     For this reason a man shall leave his father and mother                             causal 28ab
+31b         and shall be joined to his wife,                                                parallel 31a
+31c         and the two shall become one flesh.                                             parallel 31a
+31d             [although] This mystery is great;                                           concessive 31c
+31e             but I am speaking with reference to Christ and the church.                  contrast 31c
+                Nevertheless, each individual among you also is to love his own wife        contrast 31d
+31e                 even as himself,                                                        comparison 31e
+33b and the wife must see to it that she respects her husband.                              parallel 28a
+
+### Outline
+
+#### Option 1
+
+Two ways a husband must love his wife as Christ loved the church
+
+1. By caring for her in the manner he cares for himself
+
+1. By sacrificing his closest relationships for her
+
 ## Ephesians 5:15-21
 
 ```txt
@@ -49,7 +90,7 @@ Two desires a christian should exhibit to live a holy life [making most of your 
 
 #### Option 3 (Matt's example)
 
-Two choices Christians must make to ensure wise living that redeems thetime
+Two choices Christians must make to ensure wise living that redeems the time
 
 1. Living out the will of the Lord instead of engaging in folly
 
@@ -77,7 +118,7 @@ Two choices Christians must make to ensure wise living that redeems thetime
 
 ### Outline
 
-2 reasons we must avoid sinful speach:
+2 reasons we must avoid sinful speech:
 
 1. Because we are to remain as light among onlookers - v.15-16
 1. Because we are to rejoice and share our joy with one another - v.17-18
