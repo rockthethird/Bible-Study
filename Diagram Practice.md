@@ -8,34 +8,30 @@ Remember the outline is a tool for the teacher and although it must be grammatic
 
 ## Ephesians 5:25-33
 
+```txt
 25a Husbands, love your wives,                                                              main statement
-25b just as Christ also loved the church                                                    comparison 25a
-25c and gave Himself up for her,                                                            parallel 25b
-26a     so that He might sanctify her,                                                      purpose 25b
-26b     having cleansed her                                                                 result 25b
-26c         by the washing of water with the word,                                          manner 26c
-27a     that He might present to Himself the church in all her glory,                       purpose 25bc
-27b         having no spot                                                                  attendant circumstance 27a
-27c         or wrinkle                                                                      parallel 27b
-27d         or any such thing;                                                              parallel 27b
-27e         but that she would be holy                                                      contrast 27b
-27f         and blameless.                                                                  parallel 27e
-28a So husbands ought also to love their own wives                                          comparison 25b
-28b     as their own bodies.                                                                comparison 28a
-28c         [Because] He who loves his own wife loves himself;                              causal 28ab
-29a         for no one ever hated his own flesh,                                            causal 28ab
-29b             but nourishes                                                               contrast 29a
-29c             and cherishes it,                                                           parallel 29b
-29d                 just as Christ also does the church,                                    comparison 29bc
-30a                     because we are members of His body.                                 causal 29d
-31a     For this reason a man shall leave his father and mother                             causal 28ab
-31b         and shall be joined to his wife,                                                parallel 31a
-31c         and the two shall become one flesh.                                             parallel 31a
-31d             [although] This mystery is great;                                           concessive 31c
-31e             but I am speaking with reference to Christ and the church.                  contrast 31c
-                Nevertheless, each individual among you also is to love his own wife        contrast 31d
-31e                 even as himself,                                                        comparison 31e
-33b and the wife must see to it that she respects her husband.                              parallel 28a
+25b     just as Christ also loved the church                                                comparison 25a
+25c     and gave Himself up for her,                                                        parallel 25b
+26a         so that He might sanctify her,                                                  purpose 25bc
+26b             having cleansed her by the washing of water with the word,                  means 26a
+27a                 that He might present to Himself the church in all her glory,           purpose 26ab
+27b                     [that is] having no spot or wrinkle or any such thing               explanatory 27a
+27c                     but that she would be holy and blameless.                           contrast 27b
+28a So husbands ought also to love their own wives as their own bodies.                     inferential 25-27 (thematically related to 27c but carries equal weight to MS)
+28b     [You see] He who loves his own wife loves himself;                                  explanatory 28a
+29a         for no one ever hated his own flesh,                                            causal 28b
+29b         [but] nourishes and cherishes it,                                               contrast 29a
+29c                 just as Christ also does the church,                                    comparison 29b
+30                      because we are members of His body.                                 causal 29c
+31a     For this reason a man shall leave his father and mother                             parallel 28ab
+31b     and shall be joined to his wife,                                                    parallel 31a
+31c     and the two shall become one flesh.                                                 parallel 31b
+32a         This mystery is great;                                                          explanatory 31abc
+32b         but I am speaking with reference to Christ and the church.                      contrast 32a
+                Nevertheless, each individual among you also is to love
+                his own wife even as himself,                                               conclusion 5:22-32
+33b             and the wife must see to it that she respects her husband.                  parallel 33a
+```
 
 ### Outline
 
@@ -46,6 +42,10 @@ Two ways a husband must love his wife as Christ loved the church
 1. By caring for her in the manner he cares for himself
 
 1. By sacrificing his closest relationships for her
+
+#### Option 2 (include substructure)
+
+
 
 ## Ephesians 5:15-21
 
