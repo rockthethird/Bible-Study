@@ -6,6 +6,38 @@ Main points always come from the indentation. However, pay more attention to the
 
 Remember the outline is a tool for the teacher and although it must be grammatically correct there are multiple ways to get there.
 
+## 2 Corinthians 4:1-6
+
+```txt
+1  Therefore, since we have this ministry, ... we do not lose heart                             MS
+        ... as we received mercy, ...
+2a      but we have renounced the things hidden because of shame,                               contrast 1a
+        not walking in craftiness or adulterating the word of God,
+2b          but by the manifestation of truth commending ourselves                              manner 2a
+            to every man’s conscience in the sight of God.
+3           And even if our gospel is veiled, it is veiled to those who are perishing,          concessive 2a
+4a              in whose case the god of this world has blinded the minds of the unbelieving    explanatory 3
+4b                  so that they might not see the light of the gospel of the glory of          purpose 4a
+                    Christ, who is the image of God.
+5           For we do not preach ourselves but Christ Jesus as Lord, and ourselves as           inference 2b
+            your bond-servants for Jesus’ sake.
+6           For God, who said, “Light shall shine out of darkness,” is the One who has          inference 2b
+            shone in our hearts to give the Light of the knowledge of the glory of God
+            in the face of Christ.
+```
+
+### Outline
+
+#### Option 1
+
+3 reasons to remain confident when sharing God's truth
+
+1. Because we must give an account to God not man
+
+1. Because we share Christ's work not ours
+
+1. Because God is the one who enlightens hearts not us
+
 ## Ephesians 5:25-33
 
 ```txt
@@ -23,7 +55,7 @@ Remember the outline is a tool for the teacher and although it must be grammatic
 29b         [but] nourishes and cherishes it,                                               contrast 29a
 29c                 just as Christ also does the church,                                    comparison 29b
 30                      because we are members of His body.                                 causal 29c
-31a     For this reason a man shall leave his father and mother                             parallel 28ab
+31a     For this reason a man shall leave his father and mother (i.e. Genesis 2:23)         parallel 28ab
 31b     and shall be joined to his wife,                                                    parallel 31a
 31c     and the two shall become one flesh.                                                 parallel 31b
 32a         This mystery is great;                                                          explanatory 31abc
@@ -45,7 +77,29 @@ Two ways a husband must love his wife as Christ loved the church
 
 #### Option 2 (include substructure)
 
+Three features of a godly husband's love toward his wife that mimic Christ's love for His church
 
+1. He takes care of her in the manner he cares for himself v.28b
+
+1. He sacrifices his closest relationships for her v.31a
+
+1. He enters a unique union with her v.31b-32
+
+#### Option 3 (Matt)
+
+Two comparisons which must dictates a husband's love for his wife
+
+1. A husband must love his wife like Christ loves his bride vv.25-27
+
+    1. A husband must love his wife based on the expression of Christ's love for his bride v.25
+
+    1. A husband must love his wife based on the intention of Christ's love for his bride vv.26-27
+
+1. A husband must love his wife like he loves himself vv.28-33
+
+    1. How a husband must love his wife like he loves himself vv.28-30
+
+    1. Why a husband must love his wife like he loves himself vv.31-33
 
 ## Ephesians 5:15-21
 
