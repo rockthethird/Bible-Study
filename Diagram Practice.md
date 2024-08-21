@@ -1,5 +1,9 @@
 # Diagraming Practice
 
+## Diagraming
+
+Theological content cannot dictate the main statements that are not the content should be a part of the plural noun
+
 ## Outlining
 
 Main points always come from the indentation. However, pay more attention to the labels and do not overthink the indentation. There should always be a direct tie to the diagram. A means to draw out the points can be to use the first point at each level of indentation (avoid supportive clauses).
@@ -9,26 +13,22 @@ Remember the outline is a tool for the teacher and although it must be grammatic
 ## Galatians 6:11-16
 
 ```txt
-11a [You] See ... I am writing to you                                                   emphasis 12-16
-11b     ... with what large letters ...                                                 means 11a
-11c     with my own hand.                                                               means 11ab
-12a Those ... try to compel you to be circumcised,                                      MS
-12b     ... who desire to make a good showing in the flesh ...                          relative 12a
-12c     simply so that they will not be persecuted for the cross of Christ.             purpose 12a
-13a         For those ... do not even keep the Law themselves,                          causal 12c
-13b             ... who are circumcised ...                                             relative 13a
-13c             but they desire to have you circumcised                                 contrast 13a
-13d                 so that they may boast in your flesh.                               purpose 13c
-14a                      But may it never be that I would boast,                        contrast 13d
-14b                         [that is] except in the cross of our Lord Jesus Christ,     explanatory 14a
-14c                             through which the world has been crucified to me,       explanatory 14b
-14d                             and I to the world.                                     parallel 14c
-15a                         For neither is circumcision anything,                       causal 14a
-15b                         nor uncircumcision,                                         parallel 15a
-15c                         but a new creation.                                         contrast 15ab
-16a                             And those ..., peace and mercy be upon them, ...        causal 15abc
-16b                             ... who will walk by this rule ...                      relative 16a
-16c                             ... and upon the Israel of God.                         parallel 16a
+11 See with what large letters I am writing to you with my own hand.                                main statement
+12a     Those ... try to compel you to be circumcised,                                              content 11
+12b         ... who desire to make a good showing in the flesh ...                                  relative 12a
+12c         simply so that they will not be persecuted for the cross of Christ.                     purpose 12a
+13a             For those ... do not even keep the Law themselves,                                  causal 12c
+13b                 ... who are circumcised ...                                                     relative 13a
+13c             but they desire to have you circumcised                                             contrast 13a
+13d                 so that they may boast in your flesh.                                           purpose 13c
+14a                 But may it never be that I would boast,                                         contrast 13d
+14b                     except in the cross of our Lord Jesus Christ,                               conditional 14a
+14c                         through which the world has been crucified to me, and I to the world.   relative 14b
+15a                             For neither is circumcision anything, nor uncircumcision,           causal 14abc
+15b                             but a new creation.                                                 contrast 15a
+16a                             And ..., peace and mercy be upon them, ...                          parallel 15b
+16b                                 ... those who will walk by this rule ...                        relative 16a
+16c                             ... and upon the Israel of God.                                     parallel 16a
 ```
 
 ### Outline
@@ -40,6 +40,24 @@ Remember the outline is a tool for the teacher and although it must be grammatic
 1. Hope placed in our works
 
 1. Hope placed in the cross of Christ
+
+#### Option 2
+
+Paul's personal plea reveals 2 opposing objects of hope in true faithfulness
+
+1. Hope placed in our works
+
+1. Hope placed in the cross of Christ
+
+#### Options 3 (Matt)
+
+Paul's personal plea reveals 3 truths to prevent the Galatians from being captured by gospel-defying teaching
+
+1. The false teacher's self-promoting motive vv.12-13
+
+1. The apostle Paul's Christ-exalting focus vv.14-15
+
+1. The faithful believer's all-encompassing blessing v.16
 
 ## 2 Corinthians 4:1-6
 
