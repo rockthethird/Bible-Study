@@ -9,21 +9,25 @@ Remember the outline is a tool for the teacher and although it must be grammatic
 ## 2 Corinthians 4:1-6
 
 ```txt
-1  Therefore, since we have this ministry, ... we do not lose heart                             MS
-        ... as we received mercy, ...
-2a      but we have renounced the things hidden because of shame,                               contrast 1a
-        not walking in craftiness or adulterating the word of God,
-2b          but by the manifestation of truth commending ourselves                              manner 2a
+1a Therefore, ... we do not lose heart                                                  MS (inference 3:14-18)
+1b      ... since we have this ministry,                                                reason 1a
+        ... as we received mercy, ...                                                   comparison 1b
+2a but we have renounced the things hidden because of shame,                            contrast 1a
+2b      [by] not walking in craftiness                                                  means 2a
+2c      or adulterating the word of God,                                                alternative 2b (means 2a)
+2d      but by the manifestation of truth commending ourselves                          contrasting 2bc (means 2a)
             to every man’s conscience in the sight of God.
-3           And even if our gospel is veiled, it is veiled to those who are perishing,          concessive 2a
-4a              in whose case the god of this world has blinded the minds of the unbelieving    explanatory 3
-4b                  so that they might not see the light of the gospel of the glory of          purpose 4a
-                    Christ, who is the image of God.
-5           For we do not preach ourselves but Christ Jesus as Lord, and ourselves as           inference 2b
-            your bond-servants for Jesus’ sake.
-6           For God, who said, “Light shall shine out of darkness,” is the One who has          inference 2b
-            shone in our hearts to give the Light of the knowledge of the glory of God
-            in the face of Christ.
+3a And ... it is veiled to those who are perishing,                                     parallel 1a (or 2a)
+3b       ... even if our gospel is veiled,                                              concessive 3a
+4a      in whose case the god of this world has blinded the minds of the unbelieving    explanatory 3
+4b          so that they might not see the light of the gospel of the glory of Christ   result 4a
+4c              who is the image of God.                                                relative 4b
+5a      For we do not preach ourselves                                                  relative 1-2
+5b      but [preach] Christ Jesus as Lord,                                              contrast 5a
+5c      and [preach] ourselves as our bond-servants for Jesus’ sake.                    parallel 5b
+6a          For God, ... is the One who has shone in our hearts to give the Light of    reason 5
+            the knowledge of the glory of God in the face of Christ.
+6b              ... who said, “Light shall shine out of darkness,” ...                  relative 6a
 ```
 
 ### Outline
@@ -37,6 +41,20 @@ Remember the outline is a tool for the teacher and although it must be grammatic
 1. Because we share Christ's work not ours
 
 1. Because God is the one who enlightens hearts not us
+
+#### Option 2 (Matt)
+
+3 reasons Paul perseveres in difficulty ministry
+
+1. Because the source of Paul's ministry is from God v.1
+
+1. Because the authenticity of Paul's ministry is apparent to man and God v.2
+
+1. Because th resistance to Paul's ministry is from the blind vv.3-6
+
+    1. This is why Christ must be exalted over man v.5
+
+    1. This is why God must grant illumination in man v.6
 
 ## Ephesians 5:25-33
 
