@@ -25,9 +25,9 @@ _In Acts 1:4-26, there are 3 essential elements that prepare us for ministry:_
 |-|
 |Ps. 25:4-5, 27:14, 119:114, 130:5; Col. 1:13; 2 Sam. 7; Zech. 14; Eze.; 40-48; Is. 32:15; Eze. 36, 37, 39; Joel 2; Matt. 24:14; Acts 28:30-31|
 
-(May 19, 2024)
-
 3. Depend on what the Lord has Prepared—vv.12-26
+
+    (May 19, 2024)
 
     i. By Seeking Him in Unified Prayer—vv.12-14
 
