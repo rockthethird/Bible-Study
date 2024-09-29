@@ -1,6 +1,8 @@
 # Acts 1
 
-## “What God’s People Must do to be Prepared for Ministry-Pt.1”
+## Sermon Notes
+
+### “What God’s People Must do to be Prepared for Ministry-Pt.1”
 
 _In Acts 1:4-26, there are 3 essential elements that prepare us for ministry:_
 

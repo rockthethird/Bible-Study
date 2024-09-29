@@ -1,8 +1,10 @@
 # Acts 4
 
-## “How the Church Promoted the Preeminence of Christ - Pt. 5”
+## Sermon Notes
 
-### 3. Magnifying Christ’s Exclusive Name - 4:1-31
+### “How the Church Promoted the Preeminence of Christ - Pt. 5”
+
+#### 3. Magnifying Christ’s Exclusive Name - 4:1-31
 
 (August 25, 2024)
 
@@ -29,7 +31,7 @@ _2 characteristics of the apostles’ ministry amidst adversity that all Christi
 |-|
 |Eph 6:19-20; Col 4:3-4; Acts 14:1-3; Rm 13:1-7; 1 Pt 2:13-15; Acts 2:23; 1 Peter 4:12-19|
 
-## “The Church Grows through Fellowship in Unity”
+### “The Church Grows through Fellowship in Unity”
 
 (September 1, 2024)
 
@@ -47,7 +49,7 @@ _2 characteristics of the early church that all Christians must possess to fello
 |-|
 |Jer 32:38-40; Eph 4:4-6; Rom 12:9-13; 2 Thess 3:10-15; Gal 6:10; 2 Cor 5:14-15; Jn 15:12; Eph 4:32-5:2; 1 Jn 3:16-18; Jam 2:15-17|
 
-## “The Church Grows Through Refining in Purity”
+### “The Church Grows Through Refining in Purity”
 
 (September 8, 2024)
 

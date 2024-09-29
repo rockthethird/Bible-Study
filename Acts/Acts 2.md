@@ -1,12 +1,14 @@
 # Acts 2
 
-## “The Significance of the Spirit’s Coming - Pt. 1”
+## Sermon Notes
+
+### “The Significance of the Spirit’s Coming - Pt. 1”
 
 (May 26, 2024)
 
 _In Acts 2, there are 4 relevant truths regarding the coming of the Spirit that launched the new era of God’s redemptive plan:_
 
-### 1. The Spirit’s Work is Manifestly Obvious - vv.1-13
+#### 1. The Spirit’s Work is Manifestly Obvious - vv.1-13
 
 - Are you born again and indwelt (looking for obvious change)
 
@@ -34,9 +36,9 @@ _In Acts 2, there are 4 relevant truths regarding the coming of the Spirit that 
 |-|
 |Jn 3:5-8; Is 5:24; 1 Cor 12:13; Eph 5:18; Rev 5:9; 2 Thess 2:13-14; Rom 8:12-17; Gal 5:19-24|
 
-(June 2, 2024)
+#### 2. The Spirit’s Work is Salvifically Driven - vv.14-21
 
-### 2. The Spirit’s Work is Salvifically Driven - vv.14-21
+(June 2, 2024)
 
 1. Spirit - vv.17-18
 
@@ -48,7 +50,7 @@ _In Acts 2, there are 4 relevant truths regarding the coming of the Spirit that 
 |-|
 |Rom. 6:23; 2 Cor. 6:2; Joel 2:28-32; Rom. 10:1-17|
 
-### 3. The Spirit’s Work is Divinely Commissioned-vv.22-36
+#### 3. The Spirit’s Work is Divinely Commissioned-vv.22-36
 
 (June 16, 2024)
 
@@ -96,7 +98,7 @@ _In vv.25-36, there are 2 features of Christ’s redemptive work that make him w
 |-|
 |Acts 5:30; Luke 6:46-49; Matt. 7:21-23; Ps. 89:5,7,18,19-20,27; Eph. 1:19-22; Eze. 34:11,15,23; 1 Cor. 15:25-27; 1 Pet. 3:15|
 
-### 4. The Spirit’s Work is Powerfully Effective - vv.37-47
+#### 4. The Spirit’s Work is Powerfully Effective - vv.37-47
 
 (June 30, 2024)
 
@@ -148,7 +150,7 @@ _In vv.37-47, there are 3 ways the Spirit’s work is demonstrated to be powerfu
 |-|
 |Rom. 12:2; 1 John 2:15; 1 Cor. 1:20-25; James 4:1-4; Eph. 2:1-5; 1 Cor. 5:9-11; Php. 2:14-15; 1 Thess. 2:13; Acts 20:7, Rom. 13:11-14|
 
-### 3. Spirit Produced Unity—vv.43-47
+#### 3. Spirit Produced Unity—vv.43-47
 
 (July 21, 2024)
 

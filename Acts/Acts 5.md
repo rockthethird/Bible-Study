@@ -1,6 +1,8 @@
 # Acts 5
 
-## “The Church Grows Through Refining in Purity”
+## Sermon Notes
+
+### “The Church Grows Through Refining in Purity”
 
 (September 8, 2024 - started Acts 4)
 
@@ -19,7 +21,7 @@
 |-|
 |Eph 5:25-27; Eze 11:19-21; Acts 11:23; 1 Cor 11:1; 1 Tim 4:12; Titus 2:6-8; Eph 2:2; Jude 20-23|
 
-## “How the Lord Grows a Church Through Opposition”
+### “How the Lord Grows a Church Through Opposition”
 
 (September 15, 2024)
 

@@ -1,6 +1,8 @@
 # Acts 3
 
-## “How the Church Promoted the Preeminence of Christ - Pt. 1”
+## Sermon Notes
+
+### “How the Church Promoted the Preeminence of Christ - Pt. 1”
 
 (July 28, 2024)
 
